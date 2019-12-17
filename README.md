@@ -1,0 +1,1 @@
+# hgdaily.github.io
